@@ -1,5 +1,5 @@
 1. Nurzhas Otzhanuly;
-2. skype: awpdvl; discord: nurzhas1;
+2. skype: awpdvl; discord: nurzhas1; +87474717127;
 3. Trying to learn JS;
 4. HTML, CSS, JS basics;
 5. 
